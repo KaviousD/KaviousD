@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/KaviousD](https://github.com/KaviousD)
 
-- 📫 How to reach me **Kaviousdmoment@memphismchs.org**
+- 📫 How to reach me **MOMENTWORK2020@GMAIL.COM**
 
 - ⚡ Fun fact **I would like to animate in my spare time**
 
